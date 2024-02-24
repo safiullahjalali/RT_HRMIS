@@ -1,0 +1,5 @@
+![Screenshot 2024-02-24 095349](https://github.com/safiullahjalali/RT_HRMIS/assets/85859770/5cae9839-03d5-400d-8855-fc5ce4674284)
+![Screenshot 2024-02-24 095506](https://github.com/safiullahjalali/RT_HRMIS/assets/85859770/229da332-05a3-4e54-8f93-e0940e509220)
+![Screenshot 2024-02-24 095420](https://github.com/safiullahjalali/RT_HRMIS/assets/85859770/47ebe865-2bc2-4be8-990a-0a20143f2f01)
+![Screenshot 2024-02-24 095649](https://github.com/safiullahjalali/RT_HRMIS/assets/85859770/ad027029-27c2-408e-93a0-4cd5d9b7b731)
+![Screenshot 2024-02-24 095626](https://github.com/safiullahjalali/RT_HRMIS/assets/85859770/b14682c4-96d3-4710-aa8a-f6bcdd141886)
